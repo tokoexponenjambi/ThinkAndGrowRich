@@ -49,3 +49,9 @@
 - (Halaman 75): Alam bawah sadar tidak akan membuat penilaian apakah pesan yang Anda sampaikan benar atau salah, positif atau negatif. Alam bawah sadar Anda semata akan merespons kekuatan input (seberapa tinggi level emosinya).
 
 - (Halaman 77): Pikiran-pikiran yang dicampur dengan salah satu perasaan atau emosi tersebut akan menciptakan daya magnetis, yang akan menarik pikiran-pikiran sejenis, atau yang berhubungan.
+
+- (Halaman 88-89): Rumus Percaya Diri
+  - Saya tahu saya mampu mewujudkan tujuan pasti dalam hidup saya. Oleh karena itu, saya menuntut dari diri saya tindakan yang tekun dan berkesinambungan dalam usaha mewujudkannya, dan saya di sini dan sekarang berjanji akan melakukan hal tersebut.
+  - Saya menyadari pikiran mendominasi saya pada akhirnya akan menggandakan diri dalam tindakan keluar dan fisik, dan pada akhirnya mengubah diri menjadi realitas fisik. Oleh karena itu saya akan memusatkan pikiran selama tiga puluh menit setiap hari pada tugas membayangkan orang yang ingin saya tiru sehingga menciptakan dalam pikiran saya gambar mental yang jelas akan sosok tersebut.
+  - Saya tahu lewat prinsip autosugesti bahwa hasrat apa pun yang terus-menerut saya pelihara dalam pikiran pada akhirnya akan mencari pengungkapan lewat beberapa cara praktis untuk mewujudkan tujuan. Oleh karena itu, saya akan meluangkan sepuluh menit setiap haru menuntut diri saya mengembangkan rasa percaya diri.
+  - Saya telah menuliskan dengan jelas tujuan pasti saya dalam kehidupan, dan saya tidak akan berhenti berusaha sampai saya berhasil mengembangkan rasa percaya diri yang cukup untuk mewujudkannya.
